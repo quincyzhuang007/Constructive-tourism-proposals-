@@ -16,19 +16,19 @@ A guidence as a false local
 
 2.【学校】开放式校园-中国人民大学苏州校区
 
-3.Live house 相关演出资讯现在还没有放出...要再等等
+3.【演奏会】久石让 宫崎骏漫画经典音乐作品演奏会 介绍：https://m.damai.cn/damai/detail/item.html?utm=&itemId=640052138709&from=appshare
 
 上海：
 
-5.[艺术展】复苏之前 Before Rejuvenation
+4.[艺术展】复苏之前 Before Rejuvenation
   地点：上海市 库茨艺术中心 介绍 https://www.douban.com/event/34177852/
   
   
-6.[浸入式戏剧]《不眠之夜 Sleep No More》
+5[浸入式戏剧]《不眠之夜 Sleep No More》
 地点：上海/麦金侬酒店 介绍：这个应该是国际上浸入式戏剧的最高典范与最高水准了，强烈推荐，建议点击链接了解https://www.zhihu.com/answer/137020193
 票：只有5.1号 14：15的票
 
-【沉浸式游戏剧本】上位·半生仇
+6【沉浸式游戏剧本】上位·半生仇
 地点：上海|UmePlay 沉浸式游戏剧场  介绍：高级剧本杀（换装，NPC互动，20多个可能的剧情走向），https://m.damai.cn/damai/detail/item.html?utm=&itemId=618330051829&from=appshare
   
 7.【音乐节】草莓音乐节
@@ -39,3 +39,20 @@ A guidence as a false local
 
 9.【话剧】 《牛虻》  5.2
 地点：上海市|美琪大戏院 介绍：名场面了...https://m.damai.cn/damai/detail/item.html?utm=&itemId=639984998220&from=appshare
+
+
+由此，我姑且做一个暂行的旅游策划
+
+5.1
+下午：8，2021国潮音乐嘉年华
+
+5.2
+上午：4，复苏之前 Before Rejuvenation
+晚上19：30，牛虻
+
+5.3
+上午&下午：西交利物浦
+下午19：30 天空之城
+
+5.4
+迪士尼
